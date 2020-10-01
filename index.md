@@ -1,5 +1,8 @@
 ## Kemanan Jaringan
 # Kemanan Jaringan
+kljlkwejrt ksdjnfkshfl asfnlarf
+
+![Image](Pas_photo.jpg)
 
 ## Welcome to GitHub Pages
 
